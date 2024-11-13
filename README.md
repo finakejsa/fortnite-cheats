@@ -3,7 +3,7 @@ Explore Fortnite cheats, hacks, and strategies to gain an edge. Boost your skill
 
 <a href="https://tinyurl.com/fortnitecx"><img src="https://i.ibb.co/27TsZxJ/EDA491-E5-E96-F-4150-8-FB0-DA68-EC099-BB5.png" style="height:100px;"></a>
 
-https://user-images.githubusercontent.com/104287840/214996773-b5d419f7-84f0-4d93-ae41-244c62ec6a31.png
+<img src="https://user-images.githubusercontent.com/104287840/214996773-b5d419f7-84f0-4d93-ae41-244c62ec6a31.png">
 
 ## Features
 
